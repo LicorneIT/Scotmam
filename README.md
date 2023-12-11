@@ -1,3 +1,3 @@
-# Samsumg
+
 # Scotmam
 # Scotmam
